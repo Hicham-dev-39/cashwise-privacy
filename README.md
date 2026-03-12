@@ -1,0 +1,1 @@
+CashWise Privacy Policy page
